@@ -3,3 +3,4 @@ Today feels fast.
 My phone is loud.
 Silence is underrated.
 Breakfast was optional.
+Emails never end.
